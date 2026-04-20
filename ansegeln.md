@@ -31,7 +31,8 @@ Vor Ort ist ein winziger Kühlschrank der aber immerhin reicht für ein paar
 - Apfelschorle 
 - Bier
 - Sekt
-- 
+
+Übrig gebliebene Getränke können im Bootslager für die nächste Feier geparkt werden.
 
 Essen
 =====
@@ -41,8 +42,8 @@ Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf,
 Utensilien
 ==========
 
-- Messer zum Schmieren
-- Ein paar richtig stabile Müllsäcke
+
+- 
 
 Vorbeiretung Verkauf, Pappteller, Servietten, etc. Kasse mit Wechselgeld bereitstellen, Aufbau Bänke und Tische, Abrechnung Kasse (Verena)
 Abbau Tische und Bänke, Aufräumen, Müll entsorgen, Pfandglas und Dosen zurückbringen (Peter, Verena, Ann-Kathrin)
@@ -57,9 +58,19 @@ Dekoration
 Verkauf und Grillen
 ===================
 
+- Messer zum Schmieren
+- Ein paar richtig stabile Müllsäcke
+- Küchenrolle
+- Servietten und Gewicht zum Beschweren
+
+- Preisliste
 - Kasse (die nicht bei 3bft vom Tisch fliegt)
 - Wechselgeld (50ct, 1€, 2€, 5€)
 - Zettel und Stift für Notizen in der Kasse
 - Edding, Papier, Klebeband für Preisliste
 - Grillschürze
 
+Gegen Ende sollte die Crew sich darum kümmern dass das möglichst nicht weggeschmissen wird: Alles Fleisch durchgrillen.
+Verkauf ankurbeln.
+
+- Ein paar große Gefrierbeutel oder Tupperdosen für Reste
