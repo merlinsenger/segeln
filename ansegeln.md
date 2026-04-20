@@ -9,7 +9,7 @@ Vor der Abholung des Grills bitte immer schonmal den Takelmeister kontaktieren, 
 
 - Grill
 - Gasflaschen
-- Reiniger
+- Reiniger und Gummihandschuhe
 - Grillzange
 
 Dekoration
@@ -24,7 +24,8 @@ Dekoration
 Getränke
 ========
 
-Wenn möglich kühlen bzw. vor Wärme schützen, am Jollenhafen ausladen (Federico)
+Wenn möglich kühlen bzw. vor Wärme schützen, am Jollenhafen ausladen.
+Vor Ort ist ein winziger Kühlschrank der aber immerhin reicht für ein paar 
 
 - Mineralwasser
 - Apfelschorle 
@@ -35,13 +36,18 @@ Wenn möglich kühlen bzw. vor Wärme schützen, am Jollenhafen ausladen (Federi
 Essen
 =====
 
-Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen etc) (Ela)
+Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf, etc) (Ela)
 
 Utensilien
 ==========
 
-Vorbeiretung Verkauf, Pappteller, Servietten, etc.  Kasse mit Wechselgeld bereitstellen, Aufbau Bänke und Tische, Abrechnung Kasse (Verena)
+- Messer zum Schmieren
+- Ein paar richtig stabile Müllsäcke
+
+Vorbeiretung Verkauf, Pappteller, Servietten, etc. Kasse mit Wechselgeld bereitstellen, Aufbau Bänke und Tische, Abrechnung Kasse (Verena)
 Abbau Tische und Bänke, Aufräumen, Müll entsorgen, Pfandglas und Dosen zurückbringen (Peter, Verena, Ann-Kathrin)
+
+- 
 
 Dekoration
 ==========
@@ -51,7 +57,7 @@ Dekoration
 Verkauf und Grillen
 ===================
 
-- Kasse (die nicht bei 4bft vom Tisch fliegt)
+- Kasse (die nicht bei 3bft vom Tisch fliegt)
 - Wechselgeld (50ct, 1€, 2€, 5€)
 - Zettel und Stift für Notizen in der Kasse
 - Edding, Papier, Klebeband für Preisliste
