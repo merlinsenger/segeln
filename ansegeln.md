@@ -17,7 +17,7 @@ Dekoration
 
 - Girlande mit Flaggen aus Bootslager (kann mit Grill abgeholt werden)
 - kleinen Blumenstrauß besorgen falls neues Boot getauft wird
-- Taufpate oder Taufpatin suchen, eventuell under den Kindern jemand
+- Taufpate oder Taufpatin suchen, eventuell unter den Kindern jemand
 - Piccolo-Sekt für die Taufe
 - Fotos machen für die Website insbesondere bei Taufe
 
