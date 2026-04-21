@@ -82,11 +82,10 @@ Verkauf und Grillen
 - Grillschürze
 
 Gegen Ende sollte die Crew sich darum kümmern dass das möglichst nicht weggeschmissen wird: Alles Fleisch durchgrillen.
-Verkauf ankurbeln (Rabatt gegen Ende).
-
-- Ein paar große Gefrierbeutel oder Tupperdosen für Reste
+Verkauf ankurbeln (Rabatt gegen Ende). in paar große Gefrierbeutel oder Tupperdosen für Reste sind sinnvoll.
 
 Abrechnung
 ==========
 
-- Alle Kassenbons und Parktickets aufbewahren
+Das Fest darf gerne aber muss nicht kostendeckend sein. Alle Kassenbons und Parktickets aufbewahren.
+Sofern nur ein kleiner Überschuss erzielt wurde geht er in Absprache mit dem Kassenwart als Spende an die DGzRS.
