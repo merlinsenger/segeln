@@ -95,3 +95,4 @@ Abrechnung
 
 Das Fest darf gerne aber muss nicht kostendeckend sein. Alle Kassenbons und Parktickets aufbewahren.
 Sofern nur ein kleiner Überschuss erzielt wurde geht er in Absprache mit dem Kassenwart als Spende an die DGzRS.
+2025 war mit o.g. Mengen und Preisen ein mittlerer zweistelliger Überschuss übrig bei ca. 400€ Umsatz.
