@@ -1,7 +1,7 @@
 Grill
 =====
 
-Die SLV-Segelsparte besitzt einen Gasgrill, der normalerweise in der Bootshalle auf der Lufthansa-Basis im Raum vom Takelmeister steht. Fürs Abholen des Grills ist ein größerer Kombi sinnvoll.  Zusätzlich sind außen an der Bootshalle verschließbare Kisten in denen zwei Gasflaschen stehen. Es großzügig Gas zur Verfügung stehen, da der Grill ja bis zu 3-4h durchlaufen soll. Ggf. noch im Baumarkt die Flaschen gegen leere Flaschen tauschen. Zu jeder Gasflasche gehört für den Transport eine meist rote Plastikkappe und ein Stift mit dem das Ventil der Flasche gesichert wird. Diese Kappen gehört nach Benutzung immer auch wieder auf die Flasche. Der Baumarkt akzeptiert auch beim Flaschenwechsel keine Flaschen mit fehlendem Deckel. Generell auf sichere Lagerung der Gasflaschen achten (nicht in Gebäuden, nicht im heißen Auto).
+Die SLV-Segelsparte besitzt einen Gasgrill, der normalerweise in der Bootshalle auf der Lufthansa-Basis im Raum vom Takelmeister steht. Fürs Abholen des Grills ist ein größerer Kombi sinnvoll.  Zusätzlich sind außen an der Bootshalle verschließbare Kisten in denen zwei Gasflaschen stehen. Es großzügig Gas zur Verfügung stehen, da der Grill ja bis zu 3-4h durchlaufen soll. Ggf. noch im Baumarkt die Flaschen gegen leere Flaschen tauschen. Zu jeder Gasflasche gehört für den Transport eine meist rote Plastikkappe und ein Stift mit dem das Ventil der Flasche gesichert wird. Diese Kappen gehört nach Benutzung immer auch wieder auf die Flasche. Der Baumarkt akzeptiert auch beim Flaschenwechsel keine Flaschen mit fehlendem Deckel. Er muss dann für ca 5€ nachgekauft werden. Generell auf sichere Lagerung der Gasflaschen achten (nicht in Gebäuden, nicht im heißen Auto).
 
 Zum Grill gehört auch eine gelbe Plastikkiste mit Teilen und Utensilien und einer Anleitung zum Aufbau. Außerdem sollte Grillreiniger, ein Scotch-Schwamm und Gummihandschuhe aus der Bootshalle mitgenommen werden bzw. beschafft. Der Reiniger ist äußerst aggressiv und sollte nicht mit der Haut in Kontakt kommen.
 
@@ -15,7 +15,7 @@ Vor der Abholung des Grills bitte immer schonmal den Takelmeister kontaktieren, 
 Dekoration
 ==========
 
-- Girlande mit Flaggen aus Bootslager (kann mit Grill abgeholt werden)
+- Girlanden mit Flaggen aus Bootslager (am besten zusammen mit Grill abholen)
 - kleinen Blumenstrauß besorgen falls neues Boot getauft wird
 - Taufpate oder Taufpatin suchen, eventuell unter den Kindern jemand
 - Piccolo-Sekt für die Taufe
