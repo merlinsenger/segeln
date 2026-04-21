@@ -52,7 +52,7 @@ Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf,
 2026 bei sehr gutem Wetter und ca 70 Gästen:
 
 - gemischtes Salzgebäck, 5 Stk. große Packung vom Discounter
-- 50 Brötchen
+- 50 Brötchen (vorbestellen, ggf. Angebote nutzen)
 - 1 Kopf Eisbergsalat
 - 600g Räucherlachs in Scheiben
 - Remoulade
