@@ -1,7 +1,7 @@
 Vorbereitungen
 ==============
 
-- 4-5 Helfer organisiern, darunter mindestens 1 Caddy oder 2 Kombi
+- 4-5 Helfer organisieren, darunter mindestens 1 Caddy oder 2 Kombi
 - Ankündigung auf LSV-Website und Telegram-Gruppe ca. 2 Monate vorher
 - Erinnerung auf LSV-Website und Telegram-Gruppe 10 Tage vorher
 - Wetterbericht einholen, Gästezahl einschätzen für Mengenanpassungen
