@@ -56,22 +56,6 @@ Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf,
 - Senf, 3 Tuben
 - Ketchup, große Quetschflasche
 
-Utensilien
-==========
-
-
-- 
-
-Vorbeiretung Verkauf, Pappteller, Servietten, etc. Kasse mit Wechselgeld bereitstellen, Aufbau Bänke und Tische, Abrechnung Kasse (Verena)
-Abbau Tische und Bänke, Aufräumen, Müll entsorgen, Pfandglas und Dosen zurückbringen (Peter, Verena, Ann-Kathrin)
-
-- 
-
-Dekoration
-==========
-
-
-
 Verkauf und Grillen
 ===================
 
