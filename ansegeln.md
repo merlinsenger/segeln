@@ -1,3 +1,11 @@
+Vorbereitungen
+==============
+
+- 4-5 Helfer organisiern, darunter mindestens 1 Caddy oder 2 Kombi
+- Ankündigung auf LSV-Website und Telegram-Gruppe ca. 2 Monate vorher
+- Erinnerung auf LSV-Website und Telegram-Gruppe 10 Tage vorher
+- Wetterbericht einholen, Gästezahl einschätzen für Mengenanpassungen
+
 Grill
 =====
 
@@ -77,3 +85,8 @@ Gegen Ende sollte die Crew sich darum kümmern dass das möglichst nicht weggesc
 Verkauf ankurbeln (Rabatt gegen Ende).
 
 - Ein paar große Gefrierbeutel oder Tupperdosen für Reste
+
+Abrechnung
+==========
+
+- Alle Kassenbons und Parktickets aufbewahren
