@@ -25,12 +25,15 @@ Getränke
 ========
 
 Wenn möglich kühlen bzw. vor Wärme schützen, am Jollenhafen ausladen.
-Vor Ort ist ein winziger Kühlschrank der aber immerhin reicht für ein paar 
+Bei sehr schönem Wetter wurden 2026 von ca. 70 Gästen getrunken:
 
-- Mineralwasser
-- Apfelschorle 
-- Bier
-- Sekt
+- Mineralwasser still 6L
+- Mineralwasser sprudel 6L
+- Apfelschorle 12L
+- Cola 4L
+- Bier 30L
+- Alsterwasser 12L
+- 5L Sekt
 
 Übrig gebliebene Getränke können im Bootslager für die nächste Feier geparkt werden.
 
@@ -38,6 +41,18 @@ Essen
 =====
 
 Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf, etc) (Ela)
+2026 bei sehr gutem Wetter und ca 70 Gästen:
+
+- gemischtes Salzgebäck, 5 Stk. große Packung vom Discounter
+
+- 15 Brötchen
+- Eisbergsalat
+- 600g Räucherlachs in Scheiben
+
+- achs
+
+
+
 
 Utensilien
 ==========
@@ -62,7 +77,8 @@ Verkauf und Grillen
 - Ein paar richtig stabile Müllsäcke
 - Küchenrolle
 - Servietten und Gewicht zum Beschweren
-
+- Pappteller
+- Flüssigseife
 - Preisliste
 - Kasse (die nicht bei 3bft vom Tisch fliegt)
 - Wechselgeld (50ct, 1€, 2€, 5€)
