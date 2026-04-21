@@ -79,8 +79,8 @@ Verkauf und Grillen
 - Ein paar richtig stabile Müllsäcke
 - Küchenrolle
 - Servietten und Gewicht zum Beschweren
-- Pappteller
-- Plastikbesteck (Messer und Gabel), ca. 30Stk.
+- Pappteller, ca. 30Stk
+- Plastikbesteck (Messer und Gabel), ca. 30Stk
 - Flüssigseife
 - Preisliste
 - Kasse (die nicht bei 3bft vom Tisch fliegt)
