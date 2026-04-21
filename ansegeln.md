@@ -80,6 +80,7 @@ Verkauf und Grillen
 - Küchenrolle
 - Servietten und Gewicht zum Beschweren
 - Pappteller
+- Plastikbesteck (Messer und Gabel), ca. 30Stk.
 - Flüssigseife
 - Preisliste
 - Kasse (die nicht bei 3bft vom Tisch fliegt)
