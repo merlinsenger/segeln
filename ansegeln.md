@@ -74,6 +74,6 @@ Verkauf und Grillen
 - Grillschürze
 
 Gegen Ende sollte die Crew sich darum kümmern dass das möglichst nicht weggeschmissen wird: Alles Fleisch durchgrillen.
-Verkauf ankurbeln.
+Verkauf ankurbeln (Rabatt gegen Ende).
 
 - Ein paar große Gefrierbeutel oder Tupperdosen für Reste
