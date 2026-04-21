@@ -56,7 +56,7 @@ Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf,
 - 1 Kopf Eisbergsalat
 - 600g Räucherlachs in Scheiben
 - Remoulade
-- Fertiger Karteffolsalat, Discounter, ca. 5kg
+- Fertiger Karteffolsalat, und Cole Slaw, Discounter, ca. 5kg
 - Grillkäse
 - 5kg große Würstchen
 - 2.5kg Geflügel, mariniert
@@ -74,13 +74,18 @@ Verkauf und Grillen
 - Pappteller, ca. 30Stk
 - Plastikbesteck (Messer und Gabel), ca. 30Stk
 - Flüssigseife
-- Preisliste
+- Preisliste schreiben oder Ausdrucken
 - Kasse (die nicht bei 3bft vom Tisch fliegt)
 - Wechselgeld (50ct, 1€, 2€, 5€)
 - Zettel und Stift für Notizen in der Kasse
 - Edding, Papier, Klebeband für Preisliste
 - Grillschürze
 - Einige große Gefrierbeutel oder Tupperdosen für Reste
+
+Preise 2026: 
+
+- Wasser 0.3L 1€, Schorle 0.3L oder Cola 0.3L 1.50€, Bier und Alster 0.5L 2€, Sekt 0.2L 2.50€
+- Bratwurst im Brötchen 2.5€, Fischbrötchen 3€, Grillfleisch 3.50€
 
 Gegen Ende sollte die Crew sich darum kümmern dass das möglichst nicht weggeschmissen wird: Alles Fleisch durchgrillen.
 Verkauf ankurbeln (Rabatt gegen Ende), Reste mitnehmen.
