@@ -80,9 +80,10 @@ Verkauf und Grillen
 - Zettel und Stift für Notizen in der Kasse
 - Edding, Papier, Klebeband für Preisliste
 - Grillschürze
+- Einige große Gefrierbeutel oder Tupperdosen für Reste
 
 Gegen Ende sollte die Crew sich darum kümmern dass das möglichst nicht weggeschmissen wird: Alles Fleisch durchgrillen.
-Verkauf ankurbeln (Rabatt gegen Ende). in paar große Gefrierbeutel oder Tupperdosen für Reste sind sinnvoll.
+Verkauf ankurbeln (Rabatt gegen Ende), Reste mitnehmen.
 
 Abrechnung
 ==========
