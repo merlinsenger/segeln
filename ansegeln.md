@@ -53,9 +53,8 @@ Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf,
 - 5kg große Würstchen
 - 2.5kg Geflügel, mariniert
 - 2.5kg Schweine, mariniert
-- Senf
-- Ketchup
-
+- Senf, 3 Tuben
+- Ketchup, große Quetschflasche
 
 Utensilien
 ==========
