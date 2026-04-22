@@ -38,9 +38,9 @@ Bei sehr schönem Wetter wurden 2026 von ca. 70 Gästen getrunken:
 - Mineralwasser still 6L
 - Mineralwasser sprudel 6L
 - Apfelschorle 12L
-- Cola 4L
-- Bier 30L
-- Bier alkoholfrei 
+- Cola und Limonade 4L
+- Bier 24L
+- Bier alkoholfrei  12L
 - Alsterwasser 12L
 - 5L Sekt
 
