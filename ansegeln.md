@@ -67,6 +67,7 @@ Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf,
 Verkauf und Grillen
 ===================
 
+- Bluetooth Lautsprecher
 - Messer zum Brötchen schneiden
 - Ein paar richtig stabile Müllsäcke
 - Küchenrolle
@@ -85,7 +86,7 @@ Verkauf und Grillen
 Preise 2026: 
 
 - Wasser 0.3L 1€, Schorle 0.3L oder Cola 0.3L 1.50€, Bier und Alster 0.5L 2€, Sekt 0.2L 2.50€
-- Bratwurst im Brötchen 2.5€, Fischbrötchen 3€, Grillfleisch 3.50€
+- Bratwurst im Brötchen 3€, Fischbrötchen 3€, Grillfleisch 4€
 
 Gegen Ende sollte die Crew sich darum kümmern dass das möglichst nicht weggeschmissen wird: Alles Fleisch durchgrillen.
 Verkauf ankurbeln (Rabatt gegen Ende), Reste mitnehmen.
