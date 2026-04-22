@@ -75,6 +75,7 @@ Verkauf und Grillen
 - Küchenrolle
 - Servietten und Gewicht zum Beschweren
 - Pappteller, ca. 30Stk
+- Plastikbecher
 - Plastikbesteck (Messer und Gabel), ca. 30Stk
 - Flüssigseife
 - Universalreiniger
