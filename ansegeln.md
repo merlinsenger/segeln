@@ -40,6 +40,7 @@ Bei sehr schönem Wetter wurden 2026 von ca. 70 Gästen getrunken:
 - Apfelschorle 12L
 - Cola 4L
 - Bier 30L
+- Bier alkoholfrei 
 - Alsterwasser 12L
 - 5L Sekt
 
@@ -52,6 +53,7 @@ Einkauf aller essbaren Waren (Grillgut, Brötchen, Lachs, Saucen, Ketchup, Senf,
 2026 bei sehr gutem Wetter und ca 70 Gästen:
 
 - gemischtes Salzgebäck, 5 Stk. große Packung vom Discounter
+- Eimer Haribo Colorado, 2 große Eimer jeweils ca. 750g
 - 50 Brötchen (vorbestellen, ggf. Angebote nutzen)
 - 1 Kopf Eisbergsalat
 - 600g Räucherlachs in Scheiben
@@ -75,12 +77,14 @@ Verkauf und Grillen
 - Pappteller, ca. 30Stk
 - Plastikbesteck (Messer und Gabel), ca. 30Stk
 - Flüssigseife
+- Universalreiniger
+- Lappen
 - Preisliste schreiben oder Ausdrucken
 - Kasse (die nicht bei 3bft vom Tisch fliegt)
 - Wechselgeld (50ct, 1€, 2€, 5€)
 - Zettel und Stift für Notizen in der Kasse
 - Edding, Papier, Klebeband für Preisliste
-- Grillschürze
+- Grillschürze jeder für sich selbst
 - Einige große Gefrierbeutel oder Tupperdosen für Reste
 
 Preise 2026: 
