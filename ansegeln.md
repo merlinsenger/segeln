@@ -40,8 +40,8 @@ Bei sehr schönem Wetter wurden 2026 von ca. 70 Gästen getrunken:
 - Apfelschorle 12L
 - Cola und Limonade 4L
 - Bier 24L
-- Bier alkoholfrei  12L
-- Alsterwasser 12L
+- Bier alkoholfrei  16L
+- Alsterwasser 16L
 - 5L Sekt
 
 Übrig gebliebene Getränke können im Bootslager für die nächste Feier geparkt werden.
