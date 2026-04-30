@@ -88,7 +88,7 @@ Verkauf und Grillen
 - Lappen
 - Preisliste schreiben oder Ausdrucken
 - Kasse (die nicht bei 3bft vom Tisch fliegt)
-- Wechselgeld (50ct, 1€, 2€, 5€)
+- Wechselgeld (ca. 40€ in 50ct/1€/2€)
 - Zettel und Stift für Notizen in der Kasse
 - Edding, Papier, Klebeband für Preisliste
 - Grillschürze jeder für sich selbst
