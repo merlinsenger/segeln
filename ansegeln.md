@@ -76,6 +76,7 @@ Verkauf und Grillen
 
 - Bluetooth Lautsprecher
 - Messer zum Brötchen schneiden
+- Flaschenöffner
 - Ein paar richtig stabile Müllsäcke
 - Küchenrolle
 - Servietten und Gewicht zum Beschweren
