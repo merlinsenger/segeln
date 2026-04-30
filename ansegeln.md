@@ -20,6 +20,11 @@ Vor der Abholung des Grills bitte immer schonmal den Takelmeister kontaktieren, 
 - Reiniger, Scotch-Schwamm und Gummihandschuhe
 - Grillzange
 
+Spendenschiff
+=============
+
+Organisieren dass es jemand aus dem Vereinsheim mitbringt
+
 Dekoration
 ==========
 
