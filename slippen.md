@@ -12,6 +12,7 @@ Material
 - Kratzbürste bzw. Brett zum reinigen des Bootes
 - Kombizange
 - Leatherman
+- Gummistropps
 
 Conger
 ======
