@@ -1,4 +1,17 @@
+Material
+========
 
+- LH Ausweis
+- ggf. Dachträger
+- Trailer
+- Traverse
+- Spanngurte (2 für die Traverse, 2 für den Mast)
+- Sicherungsklötze
+- Slippleine
+- evtl. Flaschenzug
+- Kratzbürste bzw. Brett zum reinigen des Bootes
+- Kombizange
+- Leatherman
 
 Conger
 ======
